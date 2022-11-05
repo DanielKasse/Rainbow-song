@@ -4,3 +4,4 @@ and I am writing it
 because I love Rainbows
 this is a happy song
 which most people seek
+and it is done
